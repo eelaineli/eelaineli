@@ -32,7 +32,7 @@ Key Result #4: Conversating with classmates to increase own knowledge.
 
 **Goal #3**
 
-_Objective:_
+_Objective:_ 
 
 Key Result #1: 
 
