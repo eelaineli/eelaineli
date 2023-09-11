@@ -18,13 +18,13 @@ Key Result #4: Make websites accessible and editable to club leaders and Faculty
 
 _Objective:_ Increase language literacy.
 
-Key Result #1: Utilize uniform language throughout all projects, if possible. 
+Key Result #1: Complete most projects in said language.
 
-Key Result #2: Thinking abstractly with language when there are barriers. 
+Key Result #2: Generate abstract ideas around barriers. 
 
-Key Result #3: Doing own research and learning outside the classroom.
+Key Result #3: Dedicate 2 hours a week to explore language outside classroom.
 
-Key Result #4: Conversating with classmates to increase own knowledge. 
+Key Result #4: Conversate with classmates to increase own knowledge. 
 
 
 
@@ -32,13 +32,13 @@ Key Result #4: Conversating with classmates to increase own knowledge.
 
 **Goal #3**
 
-_Objective:_ 
+_Objective:_ Use computer science to bring improvement to different contexts.
 
-Key Result #1: 
+Key Result #1: Engage in 2 projects that have starkly different goals. 
 
-Key Result #2: 
+Key Result #2: Generate diverse ideas with unique applications. 
 
-Key Result #3: 
+Key Result #3: Step outside of comfort zone when generating ideas.
 
-Key Result #4: 
+Key Result #4: Thinking outside the box when identifying issues. 
 
