@@ -16,15 +16,15 @@ Key Result #4: Make websites accessible and editable to club leaders and Faculty
 
 **Goal #2**
 
-_Objective:_ 
+_Objective:_ Increase language literacy.
 
-Key Result #1: 
+Key Result #1: Utilize uniform language throughout all projects, if possible. 
 
-Key Result #2: 
+Key Result #2: Thinking abstractly with language when there are barriers. 
 
-Key Result #3: 
+Key Result #3: Doing own research and learning outside the classroom.
 
-Key Result #4: 
+Key Result #4: Conversating with classmates to increase own knowledge. 
 
 
 
