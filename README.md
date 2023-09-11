@@ -12,6 +12,8 @@ Key Result #4: Make websites accessible and editable to club leaders and Faculty
 
 
 
+
+
 **Goal #2**
 
 _Objective:_ 
@@ -23,6 +25,8 @@ Key Result #2:
 Key Result #3: 
 
 Key Result #4: 
+
+
 
 
 
